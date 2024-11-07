@@ -1,1 +1,5 @@
-# ApplicationPratique1
+# ApplicationPratique1![1](https://github.com/user-attachments/assets/c8ce05d5-092a-4702-8f05-d41959cf4668)
+![2](https://github.com/user-attachments/assets/a42f9dbf-94bc-4965-afe8-6255b6c460e8)
+![3](https://github.com/user-attachments/assets/c60e1899-9a5c-4950-a4f2-441bc72d8392)
+![4](https://github.com/user-attachments/assets/dab2dad4-c0c0-4b14-8e16-3b97c238e299)
+![5](https://github.com/user-attachments/assets/cdf63f14-4950-4cfc-a74f-0b63312167e3)
